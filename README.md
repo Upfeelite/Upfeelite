@@ -4,4 +4,4 @@
 - 💞️ I’m looking forward to collaborating on many different projects in the future to help people stay secure.
 - 📫 You can reach me through my email account, skyfall6776@gmail.com
 - 😄 Pronouns: Male
-- ⚡ Fun fact: I'm a musician skilled at many different instruments and have written many fun songs! Heavier/metal music is my favorite to write. Love the energy.
+- ⚡ Fun fact: I'm a musician skilled at many different instruments and have written many fun songs! Heavier/metal music is my favorite to write. Love the energy. Weight training is also a hobby of mine and has been for a few years.
